@@ -1,1 +1,1 @@
-Business Agility MAtrix
+Business Agility Matrix
